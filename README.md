@@ -4,7 +4,7 @@ Delhi NCR is home to numerous talented makeup artists who cater to diverse beaut
 
 Top Makeup Artists in Delhi NCR
 Meenakshi Dutt Makeovers
-Known for her innovative bridal looks, Meenakshi Dutt is one of the most sought-after makeup artists. Her expertise in HD and airbrush makeup ensures long-lasting and radiant appearances. Her studio offers a complete package, including hairstyling and outfit consultations.
+Known for her innovative bridal looks, Meenakshi Dutt is one of the most sought-after <a href="https://weddingbanquets.in/makeup-artists/delhi/all">makeup artists</a>. Her expertise in HD and airbrush makeup ensures long-lasting and radiant appearances. Her studio offers a complete package, including hairstyling and outfit consultations.
 
 Shruti Sharma
 A specialist in bridal and party makeup, Shruti is renowned for her ability to create both bold and subtle looks tailored to individual preferences. Her skill in using premium products ensures a professional finish that enhances natural beauty.
@@ -28,7 +28,7 @@ Poonam Tiwari Makeovers
 Poonam Tiwari blends classic techniques with contemporary trends to create standout bridal looks. Her experience and portfolio have earned her a strong reputation in the beauty industry.
 
 Choosing the Right Makeup Artist
-When selecting a makeup artist, consider the following:
+When selecting a <a href="https://weddingbanquets.in/makeup-artists/delhi/all">makeup artist</a>, consider the following:
 
 Experience and Portfolio: Look for artists with expertise in the type of makeup you need and review their past work.
 Trial Sessions: Many artists offer trials to ensure compatibility with your skin and personal preferences.
