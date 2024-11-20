@@ -41,4 +41,4 @@ Bridal Makeup: Designed to last all day and withstand emotions, ensuring the bri
 Engagement Makeup: Subtle yet elegant styles tailored for pre-wedding events.
 Party Makeup: Bold and glamorous options for special occasions.
 Fashion Styling: Makeup for photo shoots and runway events that aligns with the latest trends.
-Hiring a professional makeup artist not only enhances your look but also boosts your confidence, making them an essential part of any major event. For more details on top makeup artists and their services, visit platforms like weddingbanquets.
+Hiring a professional makeup artist not only enhances your look but also boosts your confidence, making them an essential part of any major event. For more details on top makeup artists and their services, visit platforms like <a href="https://weddingbanquets.in/makeup-artists/delhi/all">weddingbanquets</a>.
